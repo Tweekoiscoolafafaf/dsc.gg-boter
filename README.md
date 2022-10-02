@@ -11,3 +11,9 @@ GET THOUSANDS OF CLICKS ON DSC.GG
 # Credits 
 TWEEKOISCOOLAFAFAF  
 [@tweekoishere](https://twitter.com/tweekoishere)
+
+# STARS
+
+> 5 stars - proxy support
+
+> 10 stars - threads
