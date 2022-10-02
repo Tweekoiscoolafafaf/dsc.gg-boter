@@ -10,4 +10,4 @@ GET THOUSANDS OF CLICKS ON DSC.GG
 
 # Credits 
 ex. TWEEKOISCOOLAFAFAF  
-ex. [@tweekoishere](https://twitter.com/dompizzie)
+ex. [@tweekoishere](https://twitter.com/tweekoishere)
