@@ -9,5 +9,5 @@ GET THOUSANDS OF CLICKS ON DSC.GG
 > Random
 
 # Credits 
-ex. TWEEKOISCOOLAFAFAF  
-ex. [@tweekoishere](https://twitter.com/tweekoishere)
+TWEEKOISCOOLAFAFAF  
+[@tweekoishere](https://twitter.com/tweekoishere)
